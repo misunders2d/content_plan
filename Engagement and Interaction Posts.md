@@ -1,0 +1,71 @@
+- **Poll: What’s Your Preferred Bedding Material? (e.g., Cotton, Bamboo, Silk)**
+	- Weekly Poll Series: Explore Preferences on Different Bedding Aspects
+	- Poll Results: Share What Your Audience Prefers and Why
+	- Follow-Up Discussions: Pros and Cons of Popular Choices
+	- Polls on Instagram Stories and Facebook for Maximum Engagement
+- **Share Your Sleep Setup: Post a Picture of Your Bed and Tag Us**
+	- Monthly Bed Setup Contest: Win a Discount or Free Product
+	- Feature Customer Photos on Your Social Media and Website
+	- Hashtag Campaign: Create a Unique Hashtag for User-Generated Content
+	- Tips for Creating Instagram-Worthy Bed Setups
+- **Trivia Tuesday: Fun Facts About Sleep and Bedding**
+	- Weekly Trivia Questions: Engage Followers with Fun Facts and Quizzes
+	- Educational Posts: Detailed Explanations of Trivia Answers
+	- Trivia Rewards: Offer Discounts or Gifts for Correct Answers
+	- Collaborate with Sleep Experts for Verified and Insightful Trivia
+- **Customer Story: Share Your Experience with Our Products**
+	- Spotlight on Customer Testimonials: Real Stories, Real Results
+	- Video Testimonials: Customers Sharing Their Bedding Experience on Camera
+	- Personalize Stories: Feature Stories from Diverse Demographics and Sleep Styles
+	- Encouraging Detailed Reviews: Ask Specific Questions to Get In-Depth Responses
+- **Q&A Session: Ask Us Anything About Bedding**
+	- Live Q&A on Social Media: Facebook Live, Instagram Live, or YouTube Live
+	- Weekly Q&A Posts: Answer Commonly Asked Questions from Followers
+	- Expert Guest Sessions: Invite Sleep Experts to Answer Questions
+	- Interactive Stories: Use Instagram Stories for Quick Q&A
+- #### Additional Topics
+- **Caption Contest: Create a Funny or Creative Caption for Our Bedding Photos**
+	- Monthly Caption Contests: Winners Get Featured or Receive Special Discounts
+	- Encourage Creativity: Use Humorous or Heartwarming Themes
+	- Announce Winners: Share the Best Captions on Your Social Media
+- **Live Insta Bed Makeover: Transform a Customer’s Bed Setup Live**
+	- Collaborate with Influencers or Interior Designers for the Live Makeover
+	- Share Before and After Photos to Show the Transformation
+	- Makeover Giveaway: Select One Lucky Follower for a Bed Makeover
+	- Highlight Your Products Used During the Makeover
+- **Bedding Quiz: What Type of Sleeper Are You?**
+	- Create Interactive Quizzes to Determine Sleep Styles and Preferences
+	- Share Personalized Bedding Recommendations Based on Quiz Results
+	- Encourage Followers to Share Their Results on Social Media
+- **Throwback Thursday: Historical Bedding Trends**
+	- Share Interesting Facts and Photos of Bedding Styles from Different Eras
+	- Weekly Throwback Posts: Highlight Changes in Bedding Trends Over the Years
+	- Engage Followers by Asking for Their Favorite Era of Bedding Style
+- **Sleep Tip of the Week: Simple Ways to Improve Your Sleep**
+	- Share Weekly Tips to Enhance Sleep Quality
+	- Tips on Various Topics: Bedding Care, Sleep Hygiene, Room Setup
+	- Encourage Followers to Share Their Own Tips and Experiences
+- **User-Generated Content Campaign: #MyCozyCorner**
+	- Encourage Followers to Share Photos of Their Favorite Bed Nooks
+	- Feature the Best Photos on Your Social Media and Website
+	- Provide Tips on How to Create a Cozy Corner
+- **Bedding Myths Debunked: Fact or Fiction?**
+	- Share Common Bedding Myths and Provide Scientific Explanations
+	- Engage Followers by Asking Them to Share Myths They’ve Heard
+	- Create Infographics for Easy Sharing and Understanding
+- **Mini Challenges: 7-Day Bedroom Makeover Challenge**
+	- Daily Tips and Tasks to Transform Followers’ Bedrooms
+	- Encourage Participants to Share Their Progress Each Day
+	- Offer a Reward for Completing the Challenge
+- **Surveys: Help Us Improve Our Products**
+	- Conduct Surveys to Get Feedback on Current and Future Products
+	- Engage Followers by Letting Them Know Their Input Matters
+	- Share Insights and Changes Made Based on Survey Results
+- **Sleep Stories: Share a Relaxing Bedtime Story**
+	- Weekly or Monthly Story Series for Adults and Kids
+	- Collaborate with Authors or Influencers for Engaging Content
+	- Offer Downloadable PDFs or Audiobooks for Subscribers
+- **Interactive Infographics: The Journey of Our Bedding Products**
+	- Create Interactive Content Detailing the Manufacturing Process
+	- Highlight Environmental and Ethical Practices
+	- Engage Followers by Asking for Their Thoughts and
